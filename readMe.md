@@ -34,6 +34,7 @@
 | 30    |                                     [Final Projects](./30_Day_Mini_project_final/30_day_mini_project_final.md)                                      |
 
 🧡🧡🧡 HAPPY CODING 🧡🧡🧡
+<3<3<3<3
 
 <div>
 <small>Support the <strong>author</strong> to create more educational materials</small> <br />  
